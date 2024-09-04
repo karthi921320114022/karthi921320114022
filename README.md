@@ -1,4 +1,4 @@
-## KARTHI 
+## HI 👋 I'm KARTHI 
 
 Aspiring Software Developer
                                                
